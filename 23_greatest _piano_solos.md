@@ -1,6 +1,6 @@
 ## 23 Greatest Piano Solos according to Robert Greenberg
 
-[Great Courses 23 Greatest Piano Solos] (https://www.thegreatcourses.com/courses/the-23-greatest-solo-piano-works)
+[Great Courses 23 Greatest Piano Solos](https://www.thegreatcourses.com/courses/the-23-greatest-solo-piano-works)
 
 1. J.S. Bach — The Well-Tempered Clavier, Book One
 2. J.S. Bach — Goldberg Variations
